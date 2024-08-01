@@ -12,4 +12,4 @@ fernanda.vendramim.correa@escola.pr.gov.br
 
 @fernandavendramim
 
-![](https://media1.tenor.com/m/gL6j1Lm5bIQAAAAd/cat-cat-tongue.gif)
+![](https://media1.tenor.com/m/GBdIH5sL4XQAAAAC/the-rock-rock.gif)
