@@ -10,6 +10,6 @@ Meu nome é Fernanda Corrêa
 
 fernanda.vendramim.correa@escola.pr.gov.br
 
-@fernandavendramim
+@fernanda_vendramim
 
 ![](https://media1.tenor.com/m/GBdIH5sL4XQAAAAC/the-rock-rock.gif)
